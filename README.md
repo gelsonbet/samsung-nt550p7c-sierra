@@ -1,0 +1,1 @@
+# samsung-nt550p7c-sierra
